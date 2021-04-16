@@ -1,2 +1,0 @@
-# CERTIFICADOS
-Meus certificados 
